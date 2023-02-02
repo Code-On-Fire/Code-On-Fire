@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀  | Front-end Developers<br>🚀  | Web Designer<br> 🚀 | Never Stop Learning
+🚀  | Front-end Developers<br>🚀  | Web Designers<br> 🚀 | Never Stop Learning
 
 
 ## 🌐 Socials:
